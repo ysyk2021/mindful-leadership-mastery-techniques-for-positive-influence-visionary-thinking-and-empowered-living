@@ -1,5 +1,4 @@
-Chapter 6: Empowering Others with Mindful Communication: Strategies for Active Listening, Providing Feedback, and Fostering Collaborative Communication
-=======================================================================================================================================================
+# Strategies for Active Listening, Providing Feedback, and Fostering Collaborative Communication
 
 In this chapter, we'll explore the importance of mindful communication and its role in empowering others in the workplace. We'll examine specific strategies for practicing active listening, providing feedback, and fostering collaborative communication, and the benefits of doing so for building a strong and positive work environment.
 

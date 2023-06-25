@@ -1,5 +1,4 @@
-Chapter 5: Leading with Emotional Intelligence: Strategies for Managing Emotions, Building Empathy, and Communicating Effectively
-=================================================================================================================================
+# Strategies for Managing Emotions, Building Empathy, and Communicating Effectively
 
 In this chapter, we'll explore how to lead with emotional intelligence by managing your emotions, building empathy, and communicating effectively.
 

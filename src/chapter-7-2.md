@@ -1,5 +1,4 @@
-Chapter 7: Creating a Culture of Innovation and Learning: Strategies for Encouraging Creativity, Promoting Lifelong Learning, and Embracing Change
-==================================================================================================================================================
+# Strategies for Encouraging Creativity, Promoting Lifelong Learning, and Embracing Change
 
 Leaders who create a culture of innovation and learning are able to inspire creativity, promote lifelong learning, and embrace change. In this chapter, we'll explore the benefits of creating a culture of innovation and learning and how it can be applied in practice.
 

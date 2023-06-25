@@ -1,5 +1,4 @@
-Chapter 8: Overcoming Barriers to Mindful Leadership: Overcoming Barriers to Mindful Leadership
-===============================================================================================
+# Overcoming Barriers to Mindful Leadership
 
 In this chapter, we'll explore the barriers that can hinder mindfulness in leadership and how to overcome them. We'll discuss the benefits of mindful leadership, common barriers to mindfulness, and strategies for overcoming these barriers.
 

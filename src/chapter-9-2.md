@@ -1,5 +1,4 @@
-Chapter 9: Applying Mindful Leadership to Real-life Situations: Strategies for Leading in Challenging Times, Managing Conflict, and Inspiring Change
-====================================================================================================================================================
+# Strategies for Leading in Challenging Times, Managing Conflict, and Inspiring Change
 
 In this chapter, we'll explore how to apply mindful leadership techniques to real-life situations. Specifically, we'll discuss strategies for leading in challenging times, managing conflict, and inspiring change.
 

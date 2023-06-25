@@ -1,5 +1,4 @@
-Chapter 5: Leading with Emotional Intelligence: The Benefits of Leading with Emotional Intelligence for Building Strong Relationships and Empowering Your Team
-==============================================================================================================================================================
+# The Benefits of Leading with Emotional Intelligence for Building Strong Relationships and Empowering Your Team
 
 Leaders who lead with emotional intelligence are able to build strong relationships, foster collaboration, and empower their teams. In this chapter, we'll explore the benefits of leading with emotional intelligence and how it can be applied in practice.
 
