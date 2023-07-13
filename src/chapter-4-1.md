@@ -1,4 +1,4 @@
-Chapter 4: Visionary Thinking for Strategic Planning
+Visionary Thinking for Strategic Planning
 ====================================================
 
 Visionary thinking is a critical component of strategic planning. In this chapter, we will explore the importance of visionary thinking and its role in developing effective strategic plans.

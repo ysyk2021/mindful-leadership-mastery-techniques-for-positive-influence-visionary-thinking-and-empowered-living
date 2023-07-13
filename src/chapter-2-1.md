@@ -1,4 +1,4 @@
-Chapter 2: Building a Strong Foundation with Self-Awareness
+Building a Strong Foundation with Self-Awareness
 ===========================================================
 
 Self-awareness is a critical foundation for mindful leadership. In this chapter, we will explore the importance of self-awareness and strategies for building a strong foundation.

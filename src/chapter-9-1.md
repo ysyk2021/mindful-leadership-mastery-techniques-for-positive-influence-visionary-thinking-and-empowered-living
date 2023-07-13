@@ -1,4 +1,4 @@
-Chapter 9: Applying Mindful Leadership to Real-Life Situations
+Applying Mindful Leadership to Real-Life Situations
 ==============================================================
 
 In this chapter, we will explore how mindful leadership techniques can be applied to real-life situations in order to promote positive influence, visionary thinking, and empowered living.

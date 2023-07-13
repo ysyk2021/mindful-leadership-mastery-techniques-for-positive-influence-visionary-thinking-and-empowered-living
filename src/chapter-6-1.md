@@ -1,4 +1,4 @@
-Chapter 6: Empowering Others with Mindful Communication
+Empowering Others with Mindful Communication
 =======================================================
 
 Effective communication is a critical component of mindful leadership. In this chapter, we will explore how mindful communication can empower others and promote positive change.

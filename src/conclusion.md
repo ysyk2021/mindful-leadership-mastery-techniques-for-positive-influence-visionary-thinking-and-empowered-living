@@ -1,5 +1,8 @@
 # Conclusion
 
+Chapter 10: Conclusion
+======================
+
 In this book, we've explored the concept of mindful leadership and its essential components for achieving personal and professional success. Mindful leadership involves leading with authenticity, compassion, and a commitment to self-awareness, mindfulness, and positive influence. In this final chapter, we'll summarize the key points presented in the book, develop an action plan for achieving mindful leadership mastery and empowered living, and provide encouragement for continued growth and development towards a more mindful, purposeful, and influential life.
 
 Summarizing Key Points Presented in the Book

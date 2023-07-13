@@ -1,4 +1,4 @@
-Chapter 1: Introduction: Defining Key Concepts: Mindfulness, Leadership, Emotional Intelligence, and Purposeful Action
+Mindfulness, Leadership, Emotional Intelligence, and Purposeful Action
 ======================================================================================================================
 
 In this chapter, we'll introduce the key concepts that form the foundation of mindful leadership. Specifically, we'll define mindfulness, leadership, emotional intelligence, and purposeful action, and explore how these concepts intersect to create a powerful framework for effective, compassionate leadership.
