@@ -1,7 +1,5 @@
 # Introduction
 
-Introduction
-
 Leadership is a complex and multifaceted concept that encompasses a wide range of skills, traits, and behaviors. In today's rapidly changing world, the demands placed on leaders have never been greater. The ability to inspire, motivate, and guide others towards a common goal is essential for success in both personal and professional endeavors.
 
 Mindful leadership is a relatively new approach to leadership that emphasizes the importance of self-awareness, emotional intelligence, and empathy. Mindful leaders are able to remain calm under pressure, communicate effectively with others, and make sound decisions based on a deep understanding of themselves and those around them.
