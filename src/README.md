@@ -10,7 +10,4 @@ Whether you are a seasoned executive or just starting out in your career, the pr
 
 So join us on this journey of self-discovery and growth as we explore the power of mindful leadership mastery.
 
-
-
-
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
