@@ -38,3 +38,4 @@
   - [The Benefits of Applying Mindful Leadership to Real-life Situations for Building Confidence and Achieving Positive Results](chapter-9-3.md)
 - [Conclusion](conclusion.md)
 - [Contacts](contacts.md)
+- [Our Other Books](other-books.md)

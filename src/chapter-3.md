@@ -1,5 +1,3 @@
-Chapter 3: Understanding Your Team
-==================================
 
 As a leader, understanding your team is essential for building positive influence and empowering your employees. By taking the time to get to know each team member on a personal level, you can gain valuable insights into their strengths, areas for improvement, and unique perspectives. In this chapter, we will explore strategies for understanding your team and the benefits it can bring to your organization.
 

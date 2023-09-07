@@ -1,5 +1,3 @@
-Chapter 8: Overcoming Barriers to Mindful Leadership
-====================================================
 
 In this chapter, we will discuss the barriers that can impede mindful leadership and explore strategies for overcoming them. We will focus on self-doubt, stress management, and finding inspiration, and we will highlight the benefits of overcoming these barriers for building resilience and advancing your leadership skills.
 

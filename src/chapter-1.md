@@ -1,5 +1,3 @@
-Chapter 1: Introduction
-=======================
 
 In this chapter, we'll explore the concept of mindful leadership and the importance of developing a mindful leadership mindset for long-term success. We'll define key concepts related to mindful leadership, and discuss the benefits of implementing a mindful approach to leadership.
 

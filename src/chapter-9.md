@@ -1,4 +1,3 @@
-# Applying Mindful Leadership to Real-life Situations
 
 ## Applying Mindful Leadership to Real-life Situations
 

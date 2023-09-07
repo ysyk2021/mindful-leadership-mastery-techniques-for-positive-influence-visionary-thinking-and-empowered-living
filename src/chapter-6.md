@@ -1,5 +1,3 @@
-Chapter 6: Empowering Others with Mindful Communication
-=======================================================
 
 Empowering others through mindful communication is essential for effective leadership. In this chapter, we will explore strategies for active listening, providing feedback, and fostering collaborative communication. We will also discuss the benefits of empowering others with mindful communication for building a strong and positive work environment.
 

@@ -1,5 +1,3 @@
-Chapter 4: Visionary Thinking for Strategic Planning
-====================================================
 
 Visionary thinking is essential for effective strategic planning. In this chapter, we will explore strategies for developing visionary thinking, setting goals, and creating a clear path for success. We will also discuss the benefits of visionary thinking for effective leadership and empowered living.
 

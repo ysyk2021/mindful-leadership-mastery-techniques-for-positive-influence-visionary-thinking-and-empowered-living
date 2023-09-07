@@ -1,5 +1,3 @@
-Understanding Your Team
-==================================
 
 Understanding your team is essential for effective leadership. In this chapter, we will explore the importance of understanding your team and strategies for doing so.
 

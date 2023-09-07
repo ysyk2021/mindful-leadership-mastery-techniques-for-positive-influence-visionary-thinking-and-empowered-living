@@ -1,5 +1,3 @@
-Leading with Emotional Intelligence
-==============================================
 
 Emotional intelligence is a critical component of mindful leadership. In this chapter, we will explore the importance of leading with emotional intelligence and strategies for doing so.
 

@@ -1,5 +1,3 @@
-Chapter 5: Leading with Emotional Intelligence
-==============================================
 
 In this chapter, we will explore the importance of emotional intelligence in effective leadership. We will discuss strategies for managing emotions, building empathy, and communicating effectively. We will also discuss the benefits of leading with emotional intelligence for building strong relationships and empowering your team.
 

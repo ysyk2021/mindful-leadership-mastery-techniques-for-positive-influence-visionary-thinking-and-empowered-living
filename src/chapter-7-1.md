@@ -1,5 +1,3 @@
-Creating a Culture of Innovation and Learning
-========================================================
 
 Creating a culture of innovation and learning is essential for mindful leadership. In this chapter, we will explore the importance of creating such a culture and strategies for doing so.
 
